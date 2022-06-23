@@ -12,10 +12,10 @@
 - ⭐ My Old Project : [Loyal RP](discord.gg/loyalrp)  
   
 
-- ❓ Wtf men just me about animes i like too much animes  
+- ❓ Wtf men !!! just me and my animes, i like too much animes  
   
 
-- ⚡ Fun fact: Im too lazy buy  
+- ⚡ Fun fact: Im too lazy bro
   
 
 <br/>  
